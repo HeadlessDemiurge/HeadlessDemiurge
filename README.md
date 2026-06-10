@@ -11,4 +11,10 @@
 
 ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝙳𝚎𝚖𝚒𝚞𝚛𝚐𝚎 . 𝙳𝚎𝚖𝚒
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[STRWPG](headlessdemiurge.straw.page) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ATA](https://headlessdemiurge.atabook.org)
+
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/89791ac4-1381-4584-90c0-69b056f9cdd7" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/2dcca3f8-fff4-45c8-8d33-d74c7d178aa4" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/6c3e5429-402a-4312-bc78-bd9ed7b7f575" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/92b00d44-934a-4bc5-87aa-822cbe2266a2" /><img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/c443a4bb-e351-4c77-9f6a-1b5fa153b607" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/0a0b57f5-a7da-434a-8412-8a68e12d32f4" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/52e79c9d-8b04-456f-9505-9bd433fa397a" /> <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/22a66bdb-f39c-4832-86b7-7f9ddb44ed65" /> 
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tfyuxslhzvnqcf5wtuhmlcveya&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=eb0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
