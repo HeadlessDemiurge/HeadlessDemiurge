@@ -1,7 +1,4 @@
-![](https://komarev.com/ghpvc/?username=URUSERNAMEHERE&color=999999&style=for-the-badge&label=THE+SINNERS+♱)
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ# $\color{hsl(0,100%,50%)}{\textsf{𐋅𐌄𐌋𐌋Ꝋ. ( ◜◡༎ຶ)}}$
+<h1 align="center"> $\color{hsl(0,100%,50%)}{\textsf{𐋅𐌄𐌋𐌋Ꝋ. ( ◜◡༎ຶ)}}$</h1>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vast+Shadow&pause=1000&color=000FFF&background=FF970B&center=true&vCenter=true&width=435&lines=A+mask+of+my+own+face;I'd+wear+that%2C+I'd+wear+that)](https://git.io/typing-svg)                                                 
 
@@ -10,6 +7,8 @@
 ㅤㅤㅤ          ㅤㅤㅤㅤ<img width="800" height="643" alt="Image" src="https://github.com/user-attachments/assets/ebd75bf9-e8e8-45cd-a338-eb1206dee226" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=URUSERNAMEHERE&color=999999&style=for-the-badge&label=THE+SINNERS+♱)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝙳𝚎𝚖𝚒𝚞𝚛𝚐𝚎 . 𝙳𝚎𝚖𝚒
 
