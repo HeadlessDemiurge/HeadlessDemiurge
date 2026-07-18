@@ -1,10 +1,12 @@
 <h1 align="center"> $\color{hsl(0,100%,50%)}{\textsf{𐋅𐌄𐌋𐌋Ꝋ. ( ◜◡༎ຶ)}}$</h1>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vast+Shadow&pause=1000&color=000FFF&background=FF970B&center=true&vCenter=true&width=435&lines=A+mask+of+my+own+face;I'd+wear+that%2C+I'd+wear+that)](https://git.io/typing-svg)                                                 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vast+Shadow&pause=1000&color=000FFF&background=D5D5D586&center=true&vCenter=true&width=435&lines=A+mask+of+my+own+face;I'd+wear+that%2C+I'd+wear+that)](https://git.io/typing-svg)                          
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
 
-ㅤㅤㅤ          ㅤㅤㅤㅤ<img width="800" height="643" alt="Image" src="https://github.com/user-attachments/assets/ebd75bf9-e8e8-45cd-a338-eb1206dee226" />
+ㅤㅤㅤ          ㅤㅤㅤㅤ<p align="center">
+<img width="800" height="643" alt="Image" src="https://github.com/user-attachments/assets/ebd75bf9-e8e8-45cd-a338-eb1206dee226" />
+</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
 
