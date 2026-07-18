@@ -1,15 +1,15 @@
 ![](https://komarev.com/ghpvc/?username=URUSERNAMEHERE&color=999999&style=for-the-badge&label=THE+SINNERS+♱)
 
 
-# $\color{hsl(0,100%,50%)}{\textsf{𐋅𐌄𐌋𐌋Ꝋ. ( ◜◡༎ຶ)}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ# $\color{hsl(0,100%,50%)}{\textsf{𐋅𐌄𐌋𐌋Ꝋ. ( ◜◡༎ຶ)}}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Black+Ops+One&letterSpacing=30%25;&pause=1000&color=F7F7F7&repeat=false&width=435&lines=I+got+to+preach+this+thing.+;I'll+do+the+wrong+thing+RIGHT+NOW;Sit+on+ME.;Hold+ME+down...)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vast+Shadow&pause=1000&color=000FFF&background=FF970B&center=true&vCenter=true&width=435&lines=A+mask+of+my+own+face;I'd+wear+that%2C+I'd+wear+that)](https://git.io/typing-svg)                                                 
 
-════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
 
-ㅤㅤㅤㅤㅤㅤㅤ<img width="800" height="643" alt="Image" src="https://github.com/user-attachments/assets/ebd75bf9-e8e8-45cd-a338-eb1206dee226" />
+ㅤㅤㅤ          ㅤㅤㅤㅤ<img width="800" height="643" alt="Image" src="https://github.com/user-attachments/assets/ebd75bf9-e8e8-45cd-a338-eb1206dee226" />
 
-════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ════════════════════════════════════· · ─ ·✶· ─ · ·═══════════════════════════════════════
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝙳𝚎𝚖𝚒𝚞𝚛𝚐𝚎 . 𝙳𝚎𝚖𝚒
 
